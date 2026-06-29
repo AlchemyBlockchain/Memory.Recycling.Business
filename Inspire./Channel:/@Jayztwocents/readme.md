@@ -1,0 +1,1 @@
+- [Micron... Why are you so evil? - Weekly News](https://youtu.be/OTNUl5y3tEI)
