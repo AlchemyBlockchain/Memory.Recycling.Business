@@ -1,1 +1,2 @@
 - [Micron: WTF?](https://youtu.be/R1jsbfouRQY)
+- ["Are We All Actually F'd?" - ft. Hardware Unboxed](https://youtu.be/JsrwIGbuM8o)
